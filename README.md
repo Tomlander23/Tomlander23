@@ -5,7 +5,7 @@
 - 📫 How to reach me :temiloluwafaloye23@gmail.com
 - 📫 https://www.linkedin.com/in/faloye-temiloluwa-19825830a
 - ♂️ Pronouns: He/Him
-- ⚡ Fun fact: Gaming🎮,Basketball🏀 and I’m a massive anime fan let’s talk ONE PIECE anytime.
+- ⚡ Fun fact: Gaming🎮,Basketball🏀 and I’m a massive anime fan let’s talk BLEACH anytime.
 
 <!---
 Tomlander23/Tomlander23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
